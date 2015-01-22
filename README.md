@@ -1,0 +1,2 @@
+# sosyalmedya
+Sosyal medya iconları
